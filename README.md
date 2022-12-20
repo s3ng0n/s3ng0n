@@ -1,5 +1,4 @@
-IM "s3ng0n"
-
+Hey I'm "s3ng0n"👋
 - 14 y/o 
 - Developer
 - Japan
